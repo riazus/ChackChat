@@ -12,6 +12,6 @@ For me, this is just a learning project that allowed me to get acquainted with w
 
 I will be glad if you leave feedback.
 
-You can find me in the slack of school 21 under the nickname 'jannabel' or write to the mail usmanovriaz2003@mail.ru
+You can find me in the slack of school 21 under the nickname 'jannabel' or write to the mail usmanov.riyaz22@gmail.com
 
 I wish you a pleasant acquaintance with this application!
